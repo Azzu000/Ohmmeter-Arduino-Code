@@ -1,4 +1,3 @@
-
 1. Introduction
 
 No EE class is any fun without a project! You may do this by yourself or work together with a partner, but only one partner., but... If you wanted to work alone and there is someone who needs a partner, you're it.
